@@ -4,6 +4,7 @@
 ⭐️ Fun Fact: I love attending music festivals and trying out new coffee shops! 
 
 Let's connect! 
+
 🔗 www.linkedin.com/in/mirzazainab
 
 📪 gotzainab1@hotmail.com
