@@ -5,4 +5,4 @@
 
 Let's connect! 
 
-🔗 www.linkedin.com/in/mirzazainab or 📪 gotzainab1@hotmail.com
+🔗 www.linkedin.com/in/mirzazainab or  📪 gotzainab1@hotmail.com
